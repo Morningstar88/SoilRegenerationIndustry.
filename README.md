@@ -35,4 +35,4 @@ Kontribusikan kode Anda, laporkan bug, dan terlibat dalam diskusi komunitas untu
 Jaringan dengan profesional lain / Network with other professionals:
 Ikuti diskusi dan forum online yang terkait dengan regenerasi tanah. / Follow discussions and online forums related to soil regeneration.
 Hadiri konferensi dan acara terkait pertanian berkelanjutan untuk terhubung dengan klien potensial. / Attend conferences and events related to sustainable agriculture to connect with potential clients.
-Disclaimer:  Fiverr and GitHub are independent platforms and may have their own terms and conditions for service providers. It is recommended to carefully review their guidelines before creating an account and offering services.
+Disclaimer:  Fiverr and GitHub are independent platforms and may have their own terms and conditions for service providers. It is recommended to carefully review their guidelines before creating an account and offering services.https://www.facebook.com/groups/1157612982283228
